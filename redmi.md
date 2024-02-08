@@ -1,0 +1,1 @@
+nessa pagina contém informações inportantes para a pagina
