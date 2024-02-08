@@ -1,1 +1,4 @@
-nessa pagina contém informações inportantes para a pagina
+nessa pagina contém imformações importantes para a pagina
+
+
+haaaaa frizaaaaaaa por que vc matou o curirin
